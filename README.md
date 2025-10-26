@@ -5,4 +5,4 @@
 📚 Interested in combining **mathematics** with **technology** to create meaningful insights.  
 🌱 Always curious and open to learning.  
 
-📫 You can connect with me on [LinkedIn](https://www.linkedin.com/in/elmasnuryasar)  
+🔗 You can connect with me on [LinkedIn](https://www.linkedin.com/in/elmasnuryasar)  
